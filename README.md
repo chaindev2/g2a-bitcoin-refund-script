@@ -33,6 +33,6 @@ Last week, I grabbed a \$500 Amazon card, paid 0.006 BTC, got it refunded in 12 
 - Got banned? PDF’s got fixes—new IP, incognito, fresh email.  
 
 ## Flex Your Wins  
-Post your hauls in the Issues tab or hit me on Telegram @G2AExploitFree. I’m not here to babysit—just sharing the cheat code. G2A’s loss, our gain. Fork it, use it, milk it dry.
+Post your hauls in the Issues tab or hit me on Telegram [@G2Ahacker](https://t.me/G2Ahacker). I’m not here to babysit—just sharing the cheat code. G2A’s loss, our gain. Fork it, use it, milk it dry.
 
 **Started: October 2024 | Still Kicking: March 31, 2025**
